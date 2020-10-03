@@ -13,6 +13,8 @@ Contact with me to get the Password of Zip file on :
  
  # Our team shop : https://sellix.io/M4nifest0team
  
+  ## Show on Youtube : In uploading Youtube video...
+ 
 ## • Our Channels : 
 
 🆔 Our Telegram Channel : https://t.me/M4nifest0
